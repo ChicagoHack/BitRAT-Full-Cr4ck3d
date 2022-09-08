@@ -1,7 +1,6 @@
 # BitRAT-Full-Cr4ck3d
 As title :) 
 
-RAR PASS: Bitcracked22
 
 ![As title](https://i.ibb.co/JCmX0S6/Screenshot-1.png)
 
